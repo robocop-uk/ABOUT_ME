@@ -3,7 +3,7 @@
 -->
 # <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px"> Hi, I am Meenakshi Sundaram Shanmugasundaram Chidambaram, I know my name is pretty long...typical Indian but help yourself by calling Sundar.
 
-🤖⚙️ A Hybrid Robotics Engineer with Blend of Mechanical Recipes by Education | 👨‍💻 Robot Enthusiast by Passion
+🤖+⚙️ A Hybrid Robotics Engineer with Blend of Mechanical Recipes by Education | 👨‍💻 Robot Enthusiast by Passion
 
 👨‍💻 I worked as Mechanical Engineer - III previously at Boson Motors.
 
