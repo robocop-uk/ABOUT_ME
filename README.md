@@ -9,12 +9,13 @@
 
 ❤️ An enthusiastic engineer with a high motivation who loves to play with software and hardware of robots to innovate new things that can improve the existing technology and committed to developing solutions to improve people's lives.
 
-> People who stay single are already committed to their Passion! (Borrowed from a friend)
+> People who stay single are already committed to their Passion! - Borrowed from a friend
 >
-> The Passion that keeps them occupied! (Borrowed from a friend)
+> The Passion that keeps them occupied! - Borrowed from a friend
 >
-> The Passion that makes them enjoy! (Borrowed from a friend)
+> The Passion that makes them enjoy! - Borrowed from a friend
 >
+> The Only way to do great things is to love what you do - Steve Jobs
 > -- Sundar A.K.A my so-called longest name ever
 
 🧳In my free time, I travel with music on the so-called Motorhead!
