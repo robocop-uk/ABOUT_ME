@@ -7,7 +7,7 @@
 
 👨‍💻 I worked as Mechanical Engineer - III previously at Boson Motors.
 
-❤️ An enthusiastic engineer with a highly motivated love to play with software and hardware of robots to innovate new things which can improve the existing technology and committed to developing solutions to improve people's lives.
+❤️ An enthusiastic engineer with a high motivation who loves to play with software and hardware of robots to innovate new things that can improve the existing technology and committed to developing solutions to improve people's lives.
 
 > People who stay single are already committed to their Passion! (Borrowed from a friend)
 >
