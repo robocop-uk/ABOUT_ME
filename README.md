@@ -17,12 +17,12 @@
 >
 > -- Sundar A.K.A my so-called longest name ever
 
-🎹 In my free time I play Dholak and Piano as hobbies.
+🧳In my free time, I travel with music on the so-called Motorhead!
 
-#### I am a Designer + Programmer and I turn sketches to product and also Bugs to Features :)
+#### I am a Designer + Programmer who turns sketches into products and also Bugs into Features :)
 
 <Details>
-  <summary>More about Me! Look I am too lazy to type everything here again will do it later please go to my LinkedIn page until then it is Work in Progress here🚧</summary>
+  <summary>More about Me! Look I am too lazy to type everything here again will do it later please go to my LinkedIn page until then it is a Work in Progress here🚧</summary>
   
 ## 🔭 Experience
   
